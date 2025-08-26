@@ -22,4 +22,4 @@ Check out my live CV & portfolio here: **[suleman96.github.io/cv_portfolio](http
 
 ---
 
-> ⚡ *Open to AI/ML roles, internships, and freelance collaborations in Germany and Europe.*  
+> ⚡ *Open to AI/ML roles, internships, and freelance collaborations in Germany, US and Europe.*  
